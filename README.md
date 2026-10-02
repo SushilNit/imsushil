@@ -1,4 +1,4 @@
-# Hi, I'm Sushil Janardan 👋
+# Assistant Professor 👋
 
 ### Ph.D. Researcher | Hyperspectral Imaging | Remote Sensing | Artificial Intelligence | Quantum-Inspired AI
 
